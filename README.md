@@ -1,0 +1,6 @@
+- 🐸 Hi, I’m Ria !!
+- 💗 My conforts are Demon Slayer, Skateboreds, Apex Legends And Mortal Kombat!
+- 🛹 My Pronouns are : She/Her 
+- 💞️ Im Currently Taken! so dont ask me -_- !
+- 📫 I am mostly at the docks just sitting or with my friends! 
+- 😍 I do have discord! ;; aeg#4055 ((Please dont add if your just lonely or a troll ty :) 
