@@ -1,5 +1,6 @@
 - 🐸 Hi, I’m Ria !!
-- 💗 My conforts are Demon Slayer, Skateboreds, Apex Legends And Mortal Kombat!
+- 💗 My comforts are Demon Slayer, Skateboreds, Apex Legends, Mortal Kombat And Bojack Horseman!
+- 💔 My discomforts are Crowds and dont cover me Ty!! <3
 - 🛹 My Pronouns are : She/Her 
 - 💞️ Im Currently Taken! so dont ask me -_- !
 - 📫 I am mostly at the docks just sitting or with my friends! 
