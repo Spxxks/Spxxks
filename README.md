@@ -1,9 +1,15 @@
 ((This account is for ponytown!! ))
 - 🐸 Hi, I’m Mon !!
-- 💗 My comforts are Demon Slayer, Skateboreds, Apex Legends, Mortal Kombat And Bojack Horseman!
-- 💔 My discomforts are Crowds and dont cover me Ty!! <3
+- 💗 My comforts are Demon Slayer, Skateboreds, Apex Legends, Mortal Kombat And Bojack Horseman! ((n fortnite kinda
+- 💔 My discomforts are Crowds and skin copiers and dont cover me Ty!! <3
 - 🛹 My Pronouns are : She/Her 
 - 💞️ Im Currently Taken boy the best boy in the world, Kyle <3
 - 📫 I am mostly at the docks just sitting or with my friends! 
 - 😍 I do have discord! ;; aeg#4055 ((Please dont add if your just lonely or a troll ty :) 
 - 🖤 Plus! if your having a hard time to find somthing or make something that i have on my pony just copy if it you like! (just dont copy the whole thing 😤
+- 😤 Please DNI if your 21+ i get reallllyyy uncomfortable if your over your 20s 👍👍
+- 🎉 Crowning me is fine! If im sleeping im mostly AFK so if u wanna crown me do it in whisper <3
+- 🌈 If your trying to hide or cuddle im fine with it, Its okay with me!
+- 😥 Plus PLEASE. dont copy my skins/ponys! It makes me reallyy upset :(
+- 👽 You can call me by the name of my skin/pony im cool with it!
+- 🤗 Plus! TYSM for reading this! <3 Have a good day/ Good night/ Good afternoon! Cya!! <3
