@@ -6,3 +6,4 @@
 - 💞️ Im Currently Taken boy the best boy in the world, Kyle <3
 - 📫 I am mostly at the docks just sitting or with my friends! 
 - 😍 I do have discord! ;; aeg#4055 ((Please dont add if your just lonely or a troll ty :) 
+- 🖤 Plus! if your having a hard time to find somthing or make something that i have on my pony just copy if it you like! (just dont copy the whole thing 😤
