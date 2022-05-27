@@ -5,8 +5,7 @@
 - 🛹 My Pronouns are : She/Her 
 - 💞️ Im Currently Taken boy the best boy in the world, Kyle <3
 - 📫 I am mostly at the docks just sitting or with my friends! 
-- 😍 I do have discord! ;; aeg#4055 ((Please dont add if your just lonely or a troll ty :) 
-- 🖤 Plus! if your having a hard time to find somthing or make something that i have on my pony just copy if it you like! (just dont copy the whole thing 😤
+- 😍 I do have discord! ;; aeg#4055 ((Please dont add if your just lonely or a troll ty :)
 - 😤 Minor <3
 - 🎉 Crowning me is fine! If im sleeping im mostly AFK so if u wanna crown me do it in whisper <3
 - 🌈 If your trying to hide or cuddle im fine with it, Its okay with me!
